@@ -9,7 +9,7 @@
 - LinkedIn -https://www.linkedin.com/in/idris-akeem-2a2562339?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 - 
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: All work and no play makes jack a tall boy 
+- ⚡ Fun fact: All work and no play makes jack a dull boy 
 
 <!---
 IdrisO26/IdrisO26 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
